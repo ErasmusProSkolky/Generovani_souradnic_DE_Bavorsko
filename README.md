@@ -1,0 +1,1 @@
+# Generovani_souradnic_DE_Bavorsko
